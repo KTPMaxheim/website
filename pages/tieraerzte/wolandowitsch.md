@@ -1,4 +1,4 @@
-title: KLeintierpraxis Kerstin Maxheim
+title: Kleintierpraxis Kerstin Maxheim
 
 Inhaberin: Kerstin Maxheim
 
