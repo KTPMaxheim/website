@@ -14,7 +14,7 @@ Inhaberin: Kerstin Maxheim
 | ----- | ----- | ----- | ----- | ----- | ------------------------------------ |
 | 09-12 | 09-12 | 08-12 | 09-12 | 08-12 | [siehe Notdienst](../notdienst.html) |
 | 15-18 | 16-19 | 15-17 | 16-19 | 14-17 | [siehe Notdienst](../notdienst.html) |
-
+Bitte vereinbaren Sie einen Termin
 
 
 Adresse:
